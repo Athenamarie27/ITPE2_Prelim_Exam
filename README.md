@@ -1,5 +1,1 @@
-This is your prelim laboratory exam.
-
-Use everything you learned (if there is) in solving this repository.
-
-Goodluck!
+Hi, I'm Athena Marie W. Pascual! I'm 20 years old, I live in Sto. Domingo Nueva Ecija.
